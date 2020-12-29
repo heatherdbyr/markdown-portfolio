@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. The Weeknd :heart:
+2. Jhene Aiko
+3. Drake
